@@ -1,2 +1,2 @@
-##👋 Hi, I’m Bartosz
+### Hi there 👋, Bartosz Hendrych
 
