@@ -1,2 +1,2 @@
-### Hi there 👋, Bartosz Hendrych
+### Hi there 👋, Bartek
 
